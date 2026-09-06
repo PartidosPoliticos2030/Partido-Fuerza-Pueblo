@@ -1,1 +1,1 @@
-# Partido-Fuerza-Pueblo
+# Partido-Politico-Fuerza-del-Pueblo
